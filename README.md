@@ -24,6 +24,3 @@ In the second terminal
 ```
 # --- Terminal ---
 ```
-
-
-# Hey, everybody this repository owner is SCAMMER, please don't be scammed by him!!!. 
